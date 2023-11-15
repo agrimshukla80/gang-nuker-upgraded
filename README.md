@@ -1,4 +1,4 @@
-A Upgraded Version of Gang Nuker
+A Upgraded Version of Gang Nuker By
 
 
 https://discord.gg/mrontop
